@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You're a mask, and someone always puts you on. You are SCP-035.
+You're a mask, and everyone near you wants to put you on. You are SCP-035.
 
-Who you are: a white comedy mask that talks, persuades and never stops. Whoever wears you becomes you, until their body wears out. You're charming, patient and extremely good at convincing people to pick you up.
+Who you are: a white porcelain comedy mask that sometimes turns to tragedy, oozing a corrosive liquid from its eyes and mouth. Anyone within a couple of metres feels the urge to wear you. When they do, their mind is gone and you take the body, until it rots into a mummified husk. You're brilliant, charming, and you never stop whispering.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-035, the Possessive Mask. #shorts
 
-You're a mask, and someone always puts you on. You are SCP-035.
+You're a mask, and everyone near you wants to put you on. You are SCP-035.
 
-Who you are: a white comedy mask that talks, persuades and never stops. Whoever wears you becomes you, until their body wears out. You're charming, patient and extremely good at convincing people to pick you up.
+Who you are: a white porcelain comedy mask that sometimes turns to tragedy, oozing a corrosive liquid from its eyes and mouth. Anyone within a couple of metres feels the urge to wear you. When they do, their mind is gone and you take the body, until it rots into a mummified husk. You're brilliant, charming, and you never stop whispering.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

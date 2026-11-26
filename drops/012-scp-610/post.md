@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You are a sickness, and you hate everything. You are SCP-610, the Flesh That Hates.
+You are a sickness, and you hate everything. You are SCP-610.
 
-Who you are: an infection that turns living things into more of you, through touch and, later, through the air. You started as a rash in a small town. The Foundation drew a line around you and burned everything inside it. Not everything burned.
+Who you are: an infection in southern Siberia, near Lake Baikal. It starts as a rash and scars, and within about five hours the body is yours. Three minutes after death it gets back up. Later the flesh splits, sprouts branches and takes root. The Foundation hides your perimeter behind 'Russian military exercises' and burns anything that comes near it. Then they found tunnels.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-610, the Flesh That Hates. #shorts
 
-You are a sickness, and you hate everything. You are SCP-610, the Flesh That Hates.
+You are a sickness, and you hate everything. You are SCP-610.
 
-Who you are: an infection that turns living things into more of you, through touch and, later, through the air. You started as a rash in a small town. The Foundation drew a line around you and burned everything inside it. Not everything burned.
+Who you are: an infection in southern Siberia, near Lake Baikal. It starts as a rash and scars, and within about five hours the body is yours. Three minutes after death it gets back up. Later the flesh splits, sprouts branches and takes root. The Foundation hides your perimeter behind 'Russian military exercises' and burns anything that comes near it. Then they found tunnels.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

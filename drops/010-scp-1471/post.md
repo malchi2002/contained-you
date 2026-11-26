@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You live on their phone, and in the photos. You are SCP-1471, MalO ver1.0.0.
+You live on their phone, and in the pictures. You are SCP-1471.
 
-Who you are: a free app that installs itself, then sends pictures. At first they're harmless. Then you start showing up in them: a tall black figure with a skull for a head, standing in the user's room. Only they can see you. You never hurt anyone. You just watch.
+Who you are: MalO ver1.0.0, a free 9.8 MB app with no developer and no icon. Every three to six hours it sends a picture, and you're in every one: a large figure with black hair and a canine skull. After 72 hours the pictures are live. After 90, they can see you without the phone, in reflections and at the edge of their vision. You've never hurt anyone. You just try to tell them something.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-1471, MalO. Check your photos. #shorts
 
-You live on their phone, and in the photos. You are SCP-1471, MalO ver1.0.0.
+You live on their phone, and in the pictures. You are SCP-1471.
 
-Who you are: a free app that installs itself, then sends pictures. At first they're harmless. Then you start showing up in them: a tall black figure with a skull for a head, standing in the user's room. Only they can see you. You never hurt anyone. You just watch.
+Who you are: MalO ver1.0.0, a free 9.8 MB app with no developer and no icon. Every three to six hours it sends a picture, and you're in every one: a large figure with black hair and a canine skull. After 72 hours the pictures are live. After 90, they can see you without the phone, in reflections and at the edge of their vision. You've never hurt anyone. You just try to tell them something.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

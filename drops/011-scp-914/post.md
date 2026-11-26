@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-Put something in. Get something else out. You are SCP-914, the Clockworks.
+Put something in. Something else comes out. You are SCP-914.
 
-Who you are: a huge machine of gears, belts and springs with two booths, a key and a dial. Rough, Coarse, 1:1, Fine, Very Fine. Researchers put things in and wait to see what comes out. Mostly it's useful. Sometimes it's a tiny sun. Sometimes it's what they put in on Rough.
+Who you are: a clockwork machine of gears, belts and springs, with over eight million moving parts and no electronics. Something goes into the Intake booth, a bell rings, the dial is set from Rough to Very Fine, and the key is wound. 1 kg of steel on 1:1 becomes 1 kg of screws. A man on 1:1 came out as a different man. One on Very Fine escaped, killed his guards, and dissolved into blue ash hours later.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-914. What comes out on Very Fine? #shorts
 
-Put something in. Get something else out. You are SCP-914, the Clockworks.
+Put something in. Something else comes out. You are SCP-914.
 
-Who you are: a huge machine of gears, belts and springs with two booths, a key and a dial. Rough, Coarse, 1:1, Fine, Very Fine. Researchers put things in and wait to see what comes out. Mostly it's useful. Sometimes it's a tiny sun. Sometimes it's what they put in on Rough.
+Who you are: a clockwork machine of gears, belts and springs, with over eight million moving parts and no electronics. Something goes into the Intake booth, a bell rings, the dial is set from Rough to Very Fine, and the key is wound. 1 kg of steel on 1:1 becomes 1 kg of screws. A man on 1:1 came out as a different man. One on Very Fine escaped, killed his guards, and dissolved into blue ash hours later.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.
