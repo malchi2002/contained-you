@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You walk through walls, and you take people with you. You are SCP-106, the Old Man.
+You walk through walls, and you take people with you. You are SCP-106.
 
-Who you are: a hunched, corroded figure that passes through solid matter, leaving rot behind. Anyone you catch is dragged into your 'pocket dimension', a maze of hallways with no way out. The Foundation keeps your cell floating on lead, and when you escape, they have only one way to lure you back.
+Who you are: an old man, rotting, coated in black mucus. Whatever you touch corrodes. You pass through walls and pull your prey into a pocket dimension of endless halls and rooms, where you decide how time works. Your cell is forty layers of lead-lined steel hanging in mid-air. When you escape, the recall protocol breaks a lure's femur and plays the screams over the PA.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-106. You walk through walls. #shorts
 
-You walk through walls, and you take people with you. You are SCP-106, the Old Man.
+You walk through walls, and you take people with you. You are SCP-106.
 
-Who you are: a hunched, corroded figure that passes through solid matter, leaving rot behind. Anyone you catch is dragged into your 'pocket dimension', a maze of hallways with no way out. The Foundation keeps your cell floating on lead, and when you escape, they have only one way to lure you back.
+Who you are: an old man, rotting, coated in black mucus. Whatever you touch corrodes. You pass through walls and pull your prey into a pocket dimension of endless halls and rooms, where you decide how time works. Your cell is forty layers of lead-lined steel hanging in mid-air. When you escape, the recall protocol breaks a lure's femur and plays the screams over the PA.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You are the cure. Everyone else is the disease. You are SCP-049, the Plague Doctor.
+You are the cure. Everyone else has the Pestilence. You are SCP-049.
 
-Who you are: a figure in a plague doctor's robe and mask who can see a sickness no one else can. One touch from you stops a heart. Then you operate, and what you 'cure' gets back up. You're polite, patient and certain you're helping.
+Who you are: a 1.9-metre figure that looks like a medieval plague doctor, except the robe and beaked mask grow out of you. Found in Montauban, France. You believe a disease called the Pestilence is everywhere, and your touch stops every function in a body. Then you operate, and what gets back up you call cured. You're polite, and lavender calms you.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-049, the Plague Doctor. #shorts
 
-You are the cure. Everyone else is the disease. You are SCP-049, the Plague Doctor.
+You are the cure. Everyone else has the Pestilence. You are SCP-049.
 
-Who you are: a figure in a plague doctor's robe and mask who can see a sickness no one else can. One touch from you stops a heart. Then you operate, and what you 'cure' gets back up. You're polite, patient and certain you're helping.
+Who you are: a 1.9-metre figure that looks like a medieval plague doctor, except the robe and beaked mask grow out of you. Found in Montauban, France. You believe a disease called the Pestilence is everywhere, and your touch stops every function in a body. Then you operate, and what gets back up you call cured. You're polite, and lavender calms you.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

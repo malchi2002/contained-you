@@ -1,18 +1,22 @@
-# Drop 001 — SCP-173
+# SCP-173 — The Sculpture (v3, diorama style)
 
-**Hook (on-screen):** DON'T BLINK. / YOU'RE THE REASON WHY.
-**Schedule:** 2026-11-25 22:25 America/New_York (IG Reel + YT Short via Metricool)
-**YouTube title:** You are SCP-173. Don't blink. #shorts
+- Scheduled: 2026-11-26 09:07 America/New_York (replaces the v2 post)
+- Platforms: Instagram Reel, YouTube Short
 
-## Caption
-Don't blink. You're the reason they can't. You are SCP-173.
+## Instagram caption
 
-Who you are: a statue of concrete and rebar, crudely spray-painted, locked in a sealed cell. You can only move when no one is looking, and when you move, you are faster than anything alive. Three staff must keep their eyes on you at all times and call every blink out loud. Once a week they come in to scrub the stain off your floor. Nobody asks where it comes from.
+Don't blink. You only move when no one is looking. You are SCP-173.
 
-Which life should we contain next? Tell me in the comments 👇
+Who you are: a statue of concrete and rebar, marked with Krylon spray paint. You can't move while anyone is watching you. When no one is, you're fast enough to snap a neck at the base of the skull. Three staff must enter together, two keep their eyes on you, and every blink is announced out loud. When the cell is empty, they hear scraping. The reddish-brown stain on your floor is cleaned every two weeks.
 
-Based on the SCP Foundation (scpwiki.com) · SCP-173 by Moto42 · CC BY-SA 3.0
+Which life should we contain next? Comment an SCP number 👇
+
+Based on the SCP Foundation (scpwiki.com) · CC BY-SA 3.0 · https://scpwiki.com/scp-173
 
 #horror #pixelart #scp #scpfoundation #scp173
 
-(IG caps posts at 5 hashtags: 2 broad-reach + 3 niche. YouTube gets the longer tag list in its tags field.)
+## YouTube
+
+**Title:** You are SCP-173. Don't blink. #shorts
+
+**Tags:** scp, scp foundation, scp animation, scp lore, scp explained, horror, horror shorts, creepy, scary, pixel art, pixel art animation, animation, analog horror, contain you, scp 173, scp-173, the sculpture, peanut
