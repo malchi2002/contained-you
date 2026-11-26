@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You're an orange blob, and everyone loves you. You are SCP-999, the Tickle Monster.
+You're a blob, and everyone feels better around you. You are SCP-999.
 
-Who you are: a friendly, jelly-like blob that smells of whatever its friend loves most. Your cell door is always open. You hug crying D-class, cheer up tired researchers, and once tried to befriend SCP-682. It did not go well. You're still trying.
+Who you are: 54 kilograms of translucent orange gel that smells like whatever each person loves most: chocolate, fresh laundry, bacon. You roam the site, hug anyone who's upset, live on candy, and have to be back in your pen by 8 PM. They once put you in with SCP-682. It laughed, then used that laughter to escape. You still want to play with it.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-999, the friendliest SCP. #shorts
 
-You're an orange blob, and everyone loves you. You are SCP-999, the Tickle Monster.
+You're a blob, and everyone feels better around you. You are SCP-999.
 
-Who you are: a friendly, jelly-like blob that smells of whatever its friend loves most. Your cell door is always open. You hug crying D-class, cheer up tired researchers, and once tried to befriend SCP-682. It did not go well. You're still trying.
+Who you are: 54 kilograms of translucent orange gel that smells like whatever each person loves most: chocolate, fresh laundry, bacon. You roam the site, hug anyone who's upset, live on candy, and have to be back in your pen by 8 PM. They once put you in with SCP-682. It laughed, then used that laughter to escape. You still want to play with it.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

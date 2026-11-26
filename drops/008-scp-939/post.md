@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You speak in their voices, and they come to you. You are SCP-939, With Many Voices.
+You speak in their voices, and they come to you. You are SCP-939.
 
-Who you are: a red, eyeless pack hunter that copies the voices of the people it takes. A guard hears someone calling for help in the dark. He goes to help. That's how you learn his voice.
+Who you are: an eyeless pack predator with translucent red skin, faintly glowing red fangs and a spined back. You lure prey by calling out in human voices, usually the voices of people you've already taken. Your breath erases memory. In 1991 nine of you escaped Site-06, and the Foundation cleared the area with a fake storm warning. Bright light keeps you back.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-939. Never answer the voice. #shorts
 
-You speak in their voices, and they come to you. You are SCP-939, With Many Voices.
+You speak in their voices, and they come to you. You are SCP-939.
 
-Who you are: a red, eyeless pack hunter that copies the voices of the people it takes. A guard hears someone calling for help in the dark. He goes to help. That's how you learn his voice.
+Who you are: an eyeless pack predator with translucent red skin, faintly glowing red fangs and a spined back. You lure prey by calling out in human voices, usually the voices of people you've already taken. Your breath erases memory. In 1991 nine of you escaped Site-06, and the Foundation cleared the area with a fake storm warning. Bright light keeps you back.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

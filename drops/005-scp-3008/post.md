@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You walked in for a lamp. That was three years ago. You are lost in SCP-3008.
+You walked in for a lamp. There's no way out. You're lost in SCP-3008.
 
-Who you are: a shopper in a flat-pack furniture store that has no outer walls and never ends. In the day the faceless staff stand still. When the lights go out, they walk. Survivors build forts out of shelving and ration the meatballs. You're still looking for the exit.
+Who you are: a shopper inside a flat-pack furniture store that has no outer walls and never ends. Faceless staff wander the aisles, harmless while the lights are on. When the store closes and the lights go out, they turn hostile. Survivors build forts out of shelving, and the food never runs out.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You're trapped in SCP-3008, the infinite store. #shorts
 
-You walked in for a lamp. That was three years ago. You are lost in SCP-3008.
+You walked in for a lamp. There's no way out. You're lost in SCP-3008.
 
-Who you are: a shopper in a flat-pack furniture store that has no outer walls and never ends. In the day the faceless staff stand still. When the lights go out, they walk. Survivors build forts out of shelving and ration the meatballs. You're still looking for the exit.
+Who you are: a shopper inside a flat-pack furniture store that has no outer walls and never ends. Faceless staff wander the aisles, harmless while the lights are on. When the store closes and the lights go out, they turn hostile. Survivors build forts out of shelving, and the food never runs out.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

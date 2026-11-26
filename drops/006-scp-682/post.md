@@ -1,13 +1,13 @@
-# SCP-682 — The Reptile
+# SCP-682 — Hard-to-Destroy Reptile
 
 - Scheduled: 2026-11-28 12:07 America/New_York
 - Platforms: Instagram Reel, YouTube Short
 
 ## Instagram caption
 
-They've tried to kill you thousands of times. It never sticks. You are SCP-682.
+They can't kill you. They keep trying. You are SCP-682.
 
-Who you are: a huge, reptile-like creature that hates every living thing. Whatever hurts you, you adapt to: gas, fire, acid, bullets. The Foundation can't destroy you, so they keep you weak in a tank of acid and keep trying.
+Who you are: a huge, vaguely reptile-like creature that hates all life. Asked why you killed, you answered: disgusting. You regenerate from anything you take in, even the hydrochloric acid they keep you submerged in, and you've spoken with 87% of your body destroyed. SCP-409 crystallised you before the room exploded. You came back immune. They even tried SCP-999.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-682. Nothing can kill you. #shorts
 
-They've tried to kill you thousands of times. It never sticks. You are SCP-682.
+They can't kill you. They keep trying. You are SCP-682.
 
-Who you are: a huge, reptile-like creature that hates every living thing. Whatever hurts you, you adapt to: gas, fire, acid, bullets. The Foundation can't destroy you, so they keep you weak in a tank of acid and keep trying.
+Who you are: a huge, vaguely reptile-like creature that hates all life. Asked why you killed, you answered: disgusting. You regenerate from anything you take in, even the hydrochloric acid they keep you submerged in, and you've spoken with 87% of your body destroyed. SCP-409 crystallised you before the room exploded. You came back immune. They even tried SCP-999.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.
