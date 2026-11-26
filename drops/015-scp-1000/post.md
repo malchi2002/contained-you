@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You're not a myth. You're hiding. You are SCP-1000, Bigfoot.
+You're not a myth. You were here first. You are SCP-1000.
 
-Who you are: one of the people who walked the Earth before humans did. Now you live in the deep forests and under the ground, and the Foundation works hard to keep every sighting blurry and forgotten. For now, you watch from the trees.
+Who you are: a sapient, nocturnal ape, 1.5 to 3 metres tall. Your people built a civilisation of grown, living machines while humans were still hunter-gatherers. Then humanity killed 70% of you in a single day and erased the memory of you from itself. The Foundation keeps you a joke: blurry photos, hoaxes and a silly name. But you're starting to remember.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-1000. Bigfoot is real. #shorts
 
-You're not a myth. You're hiding. You are SCP-1000, Bigfoot.
+You're not a myth. You were here first. You are SCP-1000.
 
-Who you are: one of the people who walked the Earth before humans did. Now you live in the deep forests and under the ground, and the Foundation works hard to keep every sighting blurry and forgotten. For now, you watch from the trees.
+Who you are: a sapient, nocturnal ape, 1.5 to 3 metres tall. Your people built a civilisation of grown, living machines while humans were still hunter-gatherers. Then humanity killed 70% of you in a single day and erased the memory of you from itself. The Foundation keeps you a joke: blurry photos, hoaxes and a silly name. But you're starting to remember.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

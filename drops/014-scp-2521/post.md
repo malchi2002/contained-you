@@ -1,4 +1,4 @@
-# SCP-2521 — ●●|●●●●|●●|●
+# SCP-2521 — [NO WORDS]
 
 - Scheduled: 2026-12-02 12:07 America/New_York
 - Platforms: Instagram Reel, YouTube Short
@@ -7,7 +7,7 @@
 
 Don't say it. Don't write it. You are SCP-2521.
 
-Who you are: a black, bird-like thing that comes for any written or spoken description of itself, and for whoever made it. So the Foundation stopped using words. Your entire file is drawings. Someone once said your name on the radio.
+Who you are: something that comes for any written or spoken description of itself, and for whoever wrote or said it. Pictures are safe, so its entire Foundation file is drawings, with not a single word. They once laser-cut its name into SCP-682's back. Seconds later it appeared, and ten seconds after that, that skin was gone. That's all we're going to say.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -25,7 +25,7 @@ Which SCP should we contain next? 👇
 
 Don't say it. Don't write it. You are SCP-2521.
 
-Who you are: a black, bird-like thing that comes for any written or spoken description of itself, and for whoever made it. So the Foundation stopped using words. Your entire file is drawings. Someone once said your name on the radio.
+Who you are: something that comes for any written or spoken description of itself, and for whoever wrote or said it. Pictures are safe, so its entire Foundation file is drawings, with not a single word. They once laser-cut its name into SCP-682's back. Seconds later it appeared, and ten seconds after that, that skin was gone. That's all we're going to say.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.

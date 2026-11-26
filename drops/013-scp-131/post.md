@@ -5,9 +5,9 @@
 
 ## Instagram caption
 
-You're tiny, and you're watching everything. You are SCP-131, the Eye Pods.
+You're tiny, and you never blink. You are SCP-131.
 
-Who you are: two small teardrop creatures with one big eye each that roll around Site-19 at alarming speed. You're friendly, curious and you never blink, which makes you very popular with whoever has to guard the statue.
+Who you are: two small teardrop creatures, one burnt orange and one mustard yellow, each with a single blue eye and a wheel. You roll around Site-19 at alarming speed with no brakes, bond with staff like puppies, and babble in a language no one can translate. You once followed a cleaner into SCP-173's cell and just watched it. The Foundation is considering making you its wardens.
 
 Which life should we contain next? Comment an SCP number 👇
 
@@ -23,9 +23,9 @@ Which SCP should we contain next? 👇
 
 **Title:** You are SCP-131, the Eye Pods. #shorts
 
-You're tiny, and you're watching everything. You are SCP-131, the Eye Pods.
+You're tiny, and you never blink. You are SCP-131.
 
-Who you are: two small teardrop creatures with one big eye each that roll around Site-19 at alarming speed. You're friendly, curious and you never blink, which makes you very popular with whoever has to guard the statue.
+Who you are: two small teardrop creatures, one burnt orange and one mustard yellow, each with a single blue eye and a wheel. You roll around Site-19 at alarming speed with no brakes, bond with staff like puppies, and babble in a language no one can translate. You once followed a cleaner into SCP-173's cell and just watched it. The Foundation is considering making you its wardens.
 
 Comment which SCP you want to be next.
 Follow @containedyou for a new life every day.
